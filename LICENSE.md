@@ -1,4 +1,4 @@
-# 
+# Nativo dydx trading bot extensiones para Mac OS | Élite dydx trading bot extensiones para PC Windows. Con escaneo de arbitraje y procesamiento por lotes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
